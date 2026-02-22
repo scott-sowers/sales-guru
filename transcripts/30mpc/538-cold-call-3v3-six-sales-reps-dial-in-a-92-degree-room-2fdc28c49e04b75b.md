@@ -1,0 +1,13 @@
+# #538 - Cold Call 3v3: Six Sales Reps Dial in a 92 Degree Room
+
+- Episode ID: 31135a66-ee9c-11f0-b3a7-771fbcda28a3
+- Podcast: 30mpc
+- Published: Tue, 13 Jan 2026 08:00:00 -0000
+- Link: 
+- Audio URL: https://pdst.fm/e/traffic.megaphone.fm/THMPC1296359924.mp3?updated=1769393644
+- Source Feed: https://feeds.megaphone.fm/30mpc
+- Transcribed At: 2026-02-22T23:48:14.668Z
+
+## Transcript
+
+Today, we engage in a six person cold calling battle to the death. We have found six of the best sellers on planet Earth. And guess what? These all sell for the exact same company. So we are dividing them into two teams in cold calling three v three. On team sponsorships, we have the one and only Derek Yoder. We have Alex Murphy. And we have a man with cold cold hall hands, the monkey himself, Nick Sigelski. And then when we come to team courses, we have the legendary McKenna Turner followed by myself, Arman Farrokh, and we also have oh, wait. We're missing someone on our team. We do not have a third course salesperson, so I will have to find someone along the way. But first, let's understand the strategy behind each team's cold call. What's going on, folks? If you're hearing this, we've got a really killer new YouTube video up, and I I honestly think you'd really enjoy watching the visual breakdown on our YouTube channel. So if you just click the link below in the show notes, it'll take you right to the video. We'll see you there. Today's show is brought to you by eleven x, your all in one digital GTM team handling, creating, qualifying, and converting pipeline across every channel. If you are still using stale triggers like congrats on the funding, you're getting blended in with everybody else. The best use unique signals, exact LinkedIn posts, negative product reviews, podcast appearances, and use those as their trigger. And we built a growth playbook with our friends at eleven x breaking this stuff down. You can get it for free at 11x.aibackslash30mpc, or grab it in the show notes. Today's tactic is brought to you by Attention, which uses AI to capture all of your sales interactions, automate sales busy work like CRM updates, and flag hidden deal risk. So if you wanna avoid ghosted deals, end every discovery call with these three questions. Number one, do you wanna buy? AKA validate if the deal is real. Number two, when do you wanna buy? Validate if it will close this year. And then number three, how do you buy? Validate that they will get you in front of power. We put together a guide on how to unblock the three biggest deal blockers in your pipeline. There's a link to get it down in the show notes.
