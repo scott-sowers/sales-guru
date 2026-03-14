@@ -1,0 +1,13 @@
+# #550 - How Many Meetings Can I Book Off 6,474 Personalized Cold Emails?
+
+- Episode ID: 6e88bc88-10e8-11f1-a756-030ab2d47128
+- Podcast: 30mpc
+- Published: Tue, 24 Feb 2026 08:00:00 -0000
+- Link: 
+- Audio URL: https://pdst.fm/e/traffic.megaphone.fm/THMPC6632767004.mp3
+- Source Feed: https://feeds.megaphone.fm/30mpc
+- Transcribed At: 2026-03-14T04:45:57.048Z
+
+## Transcript
+
+So here's the deal. We put out sales courses on everything from cold calling to discovery to negotiation, and sales teams will literally go and buy 50 to a 100 of those licenses to train their teams off of our content. And so naturally, a lot of the people who are most likely to buy are the people who already consume and follow our content. The problem is that's a lot of people. I have 80,000 followers on LinkedIn. Nick has 84,000 followers on LinkedIn. And then our mailing list has 60,000 followers. And so that brings us to a total initial target list of 224,000 contacts. And so I thought, what if we launched literally the biggest personalized email campaign that we have ever launched before? And so I thought of my friends at Clay who helped teams literally run mass scale personalized outreach campaigns in the thousands, and they welcomed me with open arms. What's going on, folks? If you're hearing this, we've got a really killer new YouTube video up, and I I honestly think you'd really enjoy watching the visual breakdown on our YouTube channel. So if you would just click the link below in the show notes, it'll take you right to the video. We'll see you there. Today's tactic is brought to you by Attention, which uses AI to capture all of your sales interactions, automate sales busy work like CRM updates, and flag hidden deal risk. So if you wanna avoid ghosted deals, end every discovery call with these three questions. Number one, do you wanna buy? AKA validate if the deal is real. Number two, when do you wanna buy? Validate if it will close this year. And then number three, how do you buy? Validate that they will get you in front of power. We put together a guide on how to unblock the three biggest deal blockers in your pipeline. There's a link to get it down in the show notes. Today's show is brought to you by Insightly. The CRM you spot deal risk early so pipe reviews actually drive your number. One question I ask in nearly every deal review is, what do we need to get in our next interaction with the customer? If my rep can't answer that question, the deal has risk, and I have something I can coach to. Now we built a guide with our friends at Insightly CRM on how to run pipe reviews that surface real risk and get deals moving again, and you can get it for free at the link in the show notes.
